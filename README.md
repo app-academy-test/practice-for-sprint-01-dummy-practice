@@ -1,1 +1,0 @@
-# practice-for-sprint-01-dummy-practice
